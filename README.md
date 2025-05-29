@@ -1,1 +1,1 @@
-# ![Drc (Custom)](https://github.com/user-attachments/assets/f54e535e-f512-4872-8614-71948df8f5b9) Darkroom Classic
+# ![DrC](https://github.com/user-attachments/assets/44a228dc-e63d-4f7b-b452-c3238b873a8f) Darkroom Classic
